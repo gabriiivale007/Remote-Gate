@@ -1,0 +1,1 @@
+Dispositivo per l'aperura dei cancelli 
